@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨🏻‍🎓 I'm currently studding cyberSecurity courses in UniPD<br>👨🏻‍💻 I'm currently learning more about flutter's new features<br>💡 I'm looking for new jobs or internship in Italy or Germany<br>How reach me:<br>✓ linkedIn --> https://www.linkedin.com/in/sobhan912<br>✓ Instagram --> https://www.instagram.com/sobhan912_resume/<br>😌 pronouns: He/His<br>🎧 Fun fact: I send almost 12 hours listening to songs every day
+👨🏻‍🎓 I'm currently studding cyberSecurity courses in UniPD<br>👨🏻‍💻 I'm currently learning more about flutter's new features<br>💡 I'm looking for new jobs or internship in Italy or Germany<br>How reach me:<br>✓ linkedIn --> https://www.linkedin.com/in/sobhan912<br>✓ Instagram --> https://www.instagram.com/sobhan912_resume<br>😌 pronouns: He/His<br>🎧 Fun fact: I send almost 12 hours listening to songs every day
 
 
 ## 🌐 Socials:
